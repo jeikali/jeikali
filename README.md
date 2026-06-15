@@ -1,16 +1,13 @@
-## Hi there 👋
+# INFO!
+ㅤ<p align="center">ㅤㅤ <img width="300" height="300" alt="622_sin_titulo_20260509172945" src="Untitled189_20260615211236.png" />
 
-<!--
-**intoxdincated/Intoxdincated** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+‎⠀⠀⠀ ⠀ ⠀𓈒 ݁   𓈒╺݁  ⠀she ノ he  ྀིྀི 𓈒 ݁ 
+‎⠀ ⠀ ♡⃝ ◜ o ◝݂ ྀི১ 𓂂݁ 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+i also go by my characters prns!  𓈒╺݁ ♥︎  
+‎⠀   ⠀ ⠀ c-ptsd  𓈒╺݁  autism 𓈒 
+               wlw <3
+ ⠀ ⠀ c  +  h always !
+
+﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
