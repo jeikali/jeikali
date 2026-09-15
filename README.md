@@ -1,1 +1,2 @@
-ㅤ<p align="center">ㅤㅤ <img width="1280" height="1280" alt="622_sin_titulo_20260509172945" src="Untitled221_20260903204101.png" />
+ㅤ<p align="center">ㅤㅤ <img width="300" height="300" alt="622_sin_titulo_20260509172945" src="IMG_2243.gif" />
+ [prns.cc](https://pronouns.cc/@kalim)
